@@ -222,4 +222,4 @@ Mou is offered as a **full free version**, with all features and updates include
 Experience the joy of pet ownership without the hassle—**download Mou today** and start your adventure!
 
 ---
-**Last updated:** 2026-10-14 05:40:03 UTC
+**Last updated:** 2026-10-14 10:55:49 UTC
